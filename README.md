@@ -2,7 +2,7 @@ Are dinner jokes allowed to become git-revisioned repositories? yes they do!
 
 ### What is 60+$ego?
 
-**60+$ego** (pronounce *60 something; superego*) is a meme to define a succesessful (or not even succesessful) person with a big ego. A way to catharsis.
+**60+$ego** (pronounce *60 something; superego*) is a meme to define a succesessful (or not even succesessful) person with a big ego and an age over 60. A way to catharsis.
 
 ### What can you do?
 
